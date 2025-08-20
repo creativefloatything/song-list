@@ -5,7 +5,7 @@ ADELE – **Rolling in the Deep**
 BRITNEY SPEARS – **Everytime**  
 DAVID KUSHNER – **Daylight**  
 DONALD GLOVER – **Redbone**  
-GAYLE - **abcdefu**
+GAYLE - **abcdefu**  
 GOO GOO DOLLS – **Iris**  
 HALSEY – **Without Me**  
 LAURA BREHM – **We Won't Be Alone**  
