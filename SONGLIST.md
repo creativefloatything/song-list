@@ -8,6 +8,7 @@ DONALD GLOVER – **Redbone**
 GAYLE - **abcdefu**  
 GOO GOO DOLLS – **Iris**  
 HALSEY – **Without Me**  
+JUSTIN BIEBER - **Love Yourself**  
 LAURA BREHM – **We Won't Be Alone**  
 LINKIN PARK – **Numb**  
 MILEY CYRUS – **Wrecking Ball**  
