@@ -14,6 +14,7 @@ LINKIN PARK – **Numb**
 MILEY CYRUS – **Wrecking Ball**  
 MILKY CHANCE – **Stolen Dance**  
 NOAH KAHAN – **Stick Season**  
+PANIC! AT THE DISCO - **High Hopes**  
 POST MALONE - **Circles**  
 RADIOHEAD – **Creep**  
 SIA – **Titanium**  
