@@ -9,7 +9,7 @@ GAYLE - **abcdefu**
 GOO GOO DOLLS – **Iris**  
 HALSEY – **Without Me**  
 LAURA BREHM – **We Won't Be Alone**  
-LINKIN PARK - **The Emptiness Machine**
+LINKIN PARK - **The Emptiness Machine**  
 LINKIN PARK – **Numb**  
 MILEY CYRUS – **Wrecking Ball**  
 MILKY CHANCE – **Stolen Dance**  
@@ -20,3 +20,4 @@ SIMPLE PLAN – **Perfect**
 SIMPLE PLAN – **When I'm Gone**  
 TAYLOR SWIFT – **Blank Space**  
 TONES AND I – **Dance Monkey**  
+THE WEEKND - **Can't Feel My Face**
