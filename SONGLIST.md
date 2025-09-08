@@ -20,4 +20,5 @@ SIMPLE PLAN – **Perfect**
 SIMPLE PLAN – **When I'm Gone**  
 TAYLOR SWIFT – **Blank Space**  
 TONES AND I – **Dance Monkey**  
+VANCE JOY - **Riptide**  
 THE WEEKND - **Can't Feel My Face**
