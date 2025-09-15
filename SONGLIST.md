@@ -10,6 +10,7 @@ DONALD GLOVER – **Redbone**
 GAYLE - **abcdefu**  
 GOO GOO DOLLS – **Iris**  
 HALSEY – **Without Me**  
+IMAGINE DRAGONS – **Demons**  
 LAURA BREHM – **We Won't Be Alone**  
 LINKIN PARK - **The Emptiness Machine**  
 LINKIN PARK – **Numb**  
@@ -25,4 +26,6 @@ TEDDY SWIMS - **The Door**
 TEDDY SWIMS - **Lose Control**  
 TONES AND I – **Dance Monkey**  
 VANCE JOY - **Riptide**  
-THE WEEKND - **Can't Feel My Face**
+THE WEEKND - **Can't Feel My Face**  
+X – **X**  
+
