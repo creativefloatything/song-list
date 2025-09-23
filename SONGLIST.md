@@ -1,7 +1,7 @@
 # Song List
 
 4 NON BLONDES – **What's Up**  
-99 NEIGHBORS - **Fuck No**  
+~~99 NEIGHBORS - **Fuck No**  ~~
 ADELE – **Rolling in the Deep**  
 ARTIC MONKEYS - **Do I Wanna Know**  
 BRITNEY SPEARS – **Everytime**  
@@ -11,6 +11,7 @@ GAYLE - **abcdefu**
 GOO GOO DOLLS – **Iris**  
 HALSEY – **Without Me**  
 IMAGINE DRAGONS – **Demons**  
+JOJI – **Glimpse of Us**  
 LAURA BREHM – **We Won't Be Alone**  
 LINKIN PARK - **The Emptiness Machine**  
 LINKIN PARK – **Numb**  
