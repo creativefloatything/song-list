@@ -21,6 +21,7 @@ NOAH KAHAN – **Stick Season**
 PARAMORE – **The Only Exception**  
 RADIOHEAD – **Creep**  
 SIA – **Titanium**  
+SIMPLE PLAN – **Jetlag**  
 SIMPLE PLAN – **Perfect**  
 SIMPLE PLAN – **When I'm Gone**  
 TAYLOR SWIFT – **Blank Space**  
