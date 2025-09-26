@@ -18,6 +18,7 @@ LINKIN PARK – **Numb**
 MILEY CYRUS – **Wrecking Ball**  
 MILKY CHANCE – **Stolen Dance**  
 NOAH KAHAN – **Stick Season**  
+PARAMORE – **The Only Exception**  
 RADIOHEAD – **Creep**  
 SIA – **Titanium**  
 SIMPLE PLAN – **Perfect**  
@@ -29,4 +30,3 @@ TONES AND I – **Dance Monkey**
 VANCE JOY - **Riptide**  
 THE WEEKND - **Can't Feel My Face**  
 X – **X**  
-
