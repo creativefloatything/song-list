@@ -11,6 +11,7 @@ GAYLE - **abcdefu**
 GOO GOO DOLLS – **Iris**  
 HALSEY – **Without Me**  
 IMAGINE DRAGONS – **Demons**  
+JOHN DENVER – **Leaving On A Jet Plane**  
 JOJI – **Glimpse of Us**  
 LAURA BREHM – **We Won't Be Alone**  
 LINKIN PARK - **The Emptiness Machine**  
