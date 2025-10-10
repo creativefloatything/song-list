@@ -19,6 +19,7 @@ LINKIN PARK – **Numb**
 MILEY CYRUS – **Wrecking Ball**  
 MILKY CHANCE – **Stolen Dance**  
 NOAH KAHAN – **Stick Season**  
+PARAMORE – **26**  
 PARAMORE – **The Only Exception**  
 RADIOHEAD – **Creep**  
 SIA – **Titanium**  
